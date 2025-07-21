@@ -1,1 +1,1 @@
-# CognoRise-Infotech
+# Other Ai Project 
